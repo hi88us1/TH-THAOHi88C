@@ -1,1 +1,2 @@
-# TH-THAOHi88C
+THỂ THAO
+Hi88C - Tại sảnh cược thể thao Hi88, luôn được phát trực tiếp tất cả các trận đấu tại các giải đấu lớn như: La Liga, Bundesliga, World Cup, Euro. Anh em vừa có thể tham gia đặt cược vừa có thể tham gia đặt cược tại sảnh chơi. Còn gì tuyệt vời hơn khi người chơi vừa được theo dõi trận đấu đội bóng mình yêu thích vừa thắng cược và nhận về số tiền thưởng khổng lồ từ nhà cái Hi88. - https://hi88c.us/the-thao/
